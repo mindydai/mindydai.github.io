@@ -5,3 +5,5 @@ hi Patrick. first off, happy birthday!! <3 <3 I originally put the playlist on 8
 
 https://github.com/mindydai/mindydai.github.io/blob/master/playlist%20total.mp3?autoplay=1&loop=0&controls=1
 
+
+https://www.youtube.com/watch?v=adzYW5DZoWs?autoplay=1&loop=0&controls=1
